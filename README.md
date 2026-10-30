@@ -2,4 +2,4 @@
 
 Something has changed.
 
-It is subtle, but difficult to ignore.
+What began as a small disturbance has gone further.
