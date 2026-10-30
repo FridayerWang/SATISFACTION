@@ -1,5 +1,5 @@
 # SATISFACTION
 
-Nothing remarkable happened that day.
+Something has changed.
 
-Everything was where it belonged.
+It is subtle, but difficult to ignore.
