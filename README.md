@@ -2,4 +2,4 @@
 
 Something has changed.
 
-What began as a small disturbance has gone further.
+For the first time, there seems to be a way back.
