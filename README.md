@@ -2,4 +2,4 @@
 
 Something has changed.
 
-What began as a small disturbance has gone further.
+For a moment, it seemed to have found something.
