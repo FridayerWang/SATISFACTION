@@ -2,4 +2,4 @@
 
 Something has changed.
 
-For the first time, there seems to be a way back.
+Whatever was found did not stop it from moving on.
