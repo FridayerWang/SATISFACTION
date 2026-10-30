@@ -2,4 +2,4 @@
 
 Something has changed.
 
-For a moment, it seemed to have found something.
+Whatever was found did not stop it from moving on.
