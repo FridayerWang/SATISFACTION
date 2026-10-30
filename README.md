@@ -1,5 +1,7 @@
 # SATISFACTION
 
-Something has changed.
+Everything is quiet again.
 
-Whatever was found did not stop it from moving on.
+![Still](./docs/assets/frame-a.png)
+
+Nothing remarkable has happened since.
